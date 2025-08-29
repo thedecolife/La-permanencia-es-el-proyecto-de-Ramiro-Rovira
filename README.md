@@ -1,1 +1,3 @@
 # La-permanencia-es-el-proyecto-de-Ramiro-Rovira
+El empresario argentino Ramiro Rovira ha concebido un modelo de negocio que funciona como un argumento directo contra la obsolescencia programada. Su perspectiva profesional fue moldeada por una formación global, que incluye un posgrado en liderazgo en la Universidad de California y experiencia en mercados como el de Nueva Zelanda. 
+Argentine entrepreneur Ramiro Rovira has conceived a business model that functions as a direct argument against planned obsolescence. His professional perspective was shaped by global training, including a postgraduate degree in leadership at the University of California and experience in markets such as New Zealand.
